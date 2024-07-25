@@ -1,5 +1,5 @@
 # 💫 About Me:
-I AM CURENTLY LEARNING
+My self Chethan, I AM CURENTLY LEARNING....
 
 
 # 💻 Tech Stack:
